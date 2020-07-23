@@ -1,3 +1,3 @@
 ### Hey there 👋
 
-Stay happy!
+Be happy!
